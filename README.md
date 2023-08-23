@@ -1,0 +1,2 @@
+# mynotesapp_privacypolicy
+ 
